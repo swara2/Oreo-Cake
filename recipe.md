@@ -1,0 +1,1 @@
+Crush 7 oreo biscuits.Then put 4tsp milk in oreo powder and mix it well.After that put 1tsp baking power. Mix it and put the mixer in the pan and keep on the gas in law flame for 20 min.Serve it and done.
